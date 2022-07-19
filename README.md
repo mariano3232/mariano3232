@@ -13,4 +13,4 @@ Busco un empleo en el sector IT donde pueda aprender y aportar mis conocimientos
 
 Contactame!
 Mail: marianomelend@gmail.com
-github: https://github.com/mariano3232
+LinkedIn: https://www.linkedin.com/in/mariano-melendez/
